@@ -1,0 +1,2 @@
+# investing
+Notes about investing
